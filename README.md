@@ -1,8 +1,8 @@
 ## Identitas
 
-Nama: 
+Nama: GUNTUR BUANA HIDAYAT DWIPUTERA
 
-NIM : 
+NIM : 607062400029
 
 ## Instruksi
 
